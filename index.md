@@ -15,4 +15,4 @@
 
 ### お問い合わせ
 
-**配信についてご不明な点は、Keitarou.Kondou@gmail.com まで**
+**配信についてご不明な点は、[こちら](mailto:keitarou.kondou@gmail.com) まで**
