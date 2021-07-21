@@ -16,4 +16,4 @@
 
 ### お問い合わせ
 
-
+ご不明な点は、Keitarou.Kondou@gmail.com まで
